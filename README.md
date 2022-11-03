@@ -1,4 +1,4 @@
-## Bem-vindo ao perfil do Thalles Melo 😁
+## Seja bem-vindo 😁
 
  <div>
   <a href="https://github.com/thallesgomesmelo">
